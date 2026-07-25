@@ -27,9 +27,7 @@
 
 
 ![Steam](https://img.shields.io/badge/Steam-000000?style=for-the-badge&logo=steam&logoColor=white) 
-https://steamcommunity.com/profiles/76561199778153857/
- 
- 
- siga-me !!
+ https://s.team/p/jrhp-rhmc/dpjhpptp
+
 
  
